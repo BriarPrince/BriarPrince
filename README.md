@@ -2,11 +2,12 @@
 
 ![](https://komarev.com/ghpvc/?username=briarprince&color=green)
 
- My name is Eleanore, though I'm commonly referred to as Lyn, or otherwise. Moniker's are all right, sometimes encouraged.
+ My name is Eleanore, I'm commonly referred to as Lyn, or otherwise. Moniker's are all right, sometimes encouraged.
+ 
 <details>
 
-<summary>information</summary>
-hi i have no idea what to put here
-</details>
+<summary> BYI</summary>
+
+I have Autism Spectrum Disorder & chronic loneliness, do be respectful and use tonetags with me. I am very disconnected with people and their emotions, even if you're seemingly close with me. I do try my best to empathise either way.
 
 <br clear="left"/>
