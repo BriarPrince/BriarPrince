@@ -20,12 +20,8 @@ If I make you uncomfortable I expect you to verbally express so if you want chan
 
 <details>
 <summary> Pony Town Notes</summary>
-
-- Freely cuddle or sit with me if we're in the same fandom, I like the company.
-- w2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk.
-- If we're friends on any platform feel free to come and hangout
+Freely cuddle or sit with me if we're in the same fandom, I like the company. W2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk. If we're friends on any platform feel free to come and hangout
 </details>
-
 
 
 <br clear="left"/>
