@@ -19,6 +19,6 @@ I have chronic loneliness & diagnosed autism spectrum disorder. Do be respectful
 <summary> Pony Town Notes</summary>
 Freely cuddle / hug, unless my name says otherwise.
 W2i is heavily encouraged, I'm often s-afk, offtab or i simply miss your message.
-I don't like engaging in roleplay nor ships, I will join sometimes If feel up to it. I'm open to interaction
+I don't like engaging with roleplay nor ships, I will join sometimes If feel up to it. Otherwise I'm happy to interact with you
 </details>
 
