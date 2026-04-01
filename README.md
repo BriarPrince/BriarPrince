@@ -14,11 +14,13 @@ I have autism spectrum disorder & chronic loneliness. Do be respectful and use t
 <details>
 <summary> Do Not Interact</summary>
 
-[Basic Do Not Interact](https://dni-criteria.carrd.co/) : If you're looking for a intimate partner. My past friends, or their friends trying to contact me on their behalf. Treating me like a child simply because I'm disabled. Making inapropriate jokes within little time of knowing eachother. Just don't be an asshole and you'll be fine.
+[Basicdni](https://dni-criteria.carrd.co/) : If you're looking for a intimate partner. My past friends, or their friends trying to contact me on their behalf. Treating me like a child simply because I'm disabled. Making inapropriate jokes within little time of knowing eachother. Just don't be an asshole and you'll be fine.
 </details>
 
 <details>
-<summary> Pony Town Notes</summary>
-Cuddle or sit with me if we're in the same fandom, I like the company. W2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk. If we're friends on any platform feel free to join me
+<summary> Pony Town</summary>
+Freely cuddle / hug, unless my name says otherwise.
+W2i is heavily encouraged, I'm often s-afk, offtab or i simply miss your message.
+I don't like engaging in roleplay, I will join if I feel up to it. I'm mostly open to interaction
 </details>
 
