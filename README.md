@@ -1,5 +1,6 @@
-<img align="right" src="https://github.com/user-attachments/assets/38e08af2-672e-4f5f-a27c-2609a1f0f1ea" width="327" height="577">
+<img align="right" src="https://github.com/user-attachments/assets/9f1dab77-e62b-4258-845b-f8a1991e1283" width="327" height="577">
 
+<br clear="left"/>
 
 ![](https://komarev.com/ghpvc/?username=briarprince&color=green)
 
@@ -21,5 +22,3 @@ I have autism spectrum disorder & chronic loneliness. Do be respectful and use t
 Cuddle or sit with me if we're in the same fandom, I like the company. W2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk. If we're friends on any platform feel free to join me
 </details>
 
-
-<br clear="left"/>
