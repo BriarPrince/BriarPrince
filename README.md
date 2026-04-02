@@ -6,12 +6,12 @@ My name is Eleanore, though I'm more commonly referred to as Lyn. Nickname's are
 
 <details>
 <summary> Important Information</summary>
-I have chronic loneliness & diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and reality, even if you're seemingly close to me, I do try my best to empathise either way. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or overwhelmed. I have poor recollection, and might not remember you or certain details well. Often having short mini-shutdowns, either daydreaming or mindlessly wandering.
+I have chronic loneliness & diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and reality, even if you're seemingly close to me, I do try my best to empathise either way. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or overwhelmed. I have poor recollection, and might not remember you or certain details well. I have a tendency to change personality and mood. Often having short mini-shutdowns, either daydreaming or mindlessly wandering.
 </details>
 
 <details>
 <summary> Do Not Interact</summary>
-
+ 
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) 
 - Befriending me expecting a romantic relationship
 - Approaching me for any ship
