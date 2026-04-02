@@ -26,6 +26,6 @@ I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectf
  
 - Freely C+H & interact, unless my name says otherwise.
 - W2i is heavily encouraged, as I am often s-afk, offtab or I simply misss your message.
-- If you are on any of my friendlist, I would appreciate your company.
+- If you are on my friendlist or I follow you back on here, I would appreciate your company.
 </details>
 
