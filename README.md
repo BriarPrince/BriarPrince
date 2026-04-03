@@ -16,8 +16,9 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
 - Befriending me, then expecting a romantic relationship
 - Approaching me for any ship
 - Intimate / sexual jokes unless you're close with me
-- Infantilising me due to either my disability or age
+- Infantilising me because of my disability
 - Unable to communicate in any capacity
+- Only interacting with me so you can vent
 - Past friends or their friends attempting to contact me on their behalf
 - I block freely, + If you've blocked me just keep it that way
 </details>
@@ -26,7 +27,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
 <summary> Pony Town Notes</summary>
  
 - Freely C+H & interact, unless my name says otherwise
-- W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
+- W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message. I am not ignoring you
 - If you are on my friendlist or we follow eachother, I would appreciate your company
 </details>
 
