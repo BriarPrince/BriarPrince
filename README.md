@@ -26,7 +26,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
 <summary> Pony Town Notes</summary>
  
 - Freely C+H & interact, unless my name says otherwise
-- W2i is heavily encouraged, as I am often s-afk, offtab or I simply miss your message
+- W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
 - If you are on my friendlist or we follow eachother, I would appreciate your company
 </details>
 
