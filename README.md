@@ -36,7 +36,8 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
  
 - Freely C+H & interact, unless my name says otherwise
 - I don't often enjoy roleplaying, even less so ships
-- Only found in the safe server, mostly at blacksmith or wandering
+- Only found on the safe server
 - W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
+- Don't copy my ponies. If you want to take inspo, ask
 </details>
 
