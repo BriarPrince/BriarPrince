@@ -29,6 +29,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm very a
 - Unable to communicate in any capacity
 - Only interacting with me so you can vent
 - Past friends or their friends attempting to contact me on their behalf
+- Malleus Yumeshippers, or ships. Either don't interact, or interact with caution
 </details>
 
 <details>
