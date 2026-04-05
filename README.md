@@ -11,6 +11,7 @@
 - Birthdate : December 14th
 - Malleus Draconia Riako
 - I'm a clingy person & get easily attached
+- Unlabeled / questioning
 </details>
 
 <details>
@@ -35,7 +36,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
  
 - Freely C+H & interact, unless my name says otherwise
 - I don't often enjoy roleplaying
-- Only found in the safe server
+- Only found in the safe server, mostly at blacksmith or wandering
 - W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
 </details>
 
