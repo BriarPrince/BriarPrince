@@ -1,6 +1,7 @@
 <img align="right" src="https://github.com/user-attachments/assets/9f1dab77-e62b-4258-845b-f8a1991e1283" width="327" height="577">
 
 <br clear="left"/>
+ㅤ
 
 #### My name is Eleanore, though I'm more commonly referred to as Lyn. Nicknames / petnames are all right
 
