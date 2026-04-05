@@ -2,7 +2,7 @@
 
 <br clear="left"/>
 
-#### My name is Eleanore, though I'm more commonly referred to as Lyn. Nickname's are encouraged and appreciated
+#### My name is Eleanore, though I'm more commonly referred to as Lyn. Nicknames / petnames are alright
 
 <details>
 <summary> Important Information</summary>
@@ -14,7 +14,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) : I block freely. Just don't be an asshole.
 - Befriending me, then expecting a romantic relationship
-- Intimate / sexual jokes unless you're close with me
+- Intimate jokes, unless you're close with me
 - Infantilising me because of my disability
 - Unable to communicate in any capacity
 - Only interacting with me so you can vent
