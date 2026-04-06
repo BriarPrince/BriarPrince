@@ -8,9 +8,9 @@
 <details>
 <summary> Basic Information</summary>
 
-- Birthdate : December 14th
-- Malleus Draconia Riako
 - I'm a clingy person & get easily attached
+- Birthdate : December 14th
+- Malleus Draconia Riako / Yume
 </details>
 
 <details>
