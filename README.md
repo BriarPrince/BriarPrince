@@ -8,9 +8,9 @@
 <details>
 <summary> Basic Information</summary>
 
-- I'm a clingy person & get easily attached
-- Birthdate : December 14th
-- Malleus Draconia Riako / Yume
+- Malleus Draconia Riako
+- I'm a clingy person & get easily attached.
+- My birthdate : December 14th
 </details>
 
 <details>
@@ -22,13 +22,13 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm quite 
 <summary> Do Not Interact</summary>
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) + I block freely, even if you aren't on this list specifically. Just don't be an asshole.
+- Past friends or their friends attempting to contact me on their behalf
 - Befriending me, then expecting a romantic relationship
 - Intimate or inappropriate jokes, unless you're close with me
 - Infantilising me because of my disability
 - Unable to communicate in any capacity
-- Only interacting with me so you can vent
-- Past friends or their friends attempting to contact me on their behalf
 - Malleus Yumeshippers, or ships. Either don't interact, or interact with caution
+- Only interacting with me so you can vent
 </details>
 
 <details>
