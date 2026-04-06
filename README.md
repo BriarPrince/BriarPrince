@@ -25,10 +25,10 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm quite 
 - Past friends or their friends attempting to contact me on their behalf
 - Befriending me, then expecting a romantic relationship
 - Intimate or inappropriate jokes, unless you're close with me
+- Only contacting with me to vent or ask for favors, with no genuine interest in a relationship
 - Infantilising me because of my disability
 - Unable to communicate in any capacity
 - Malleus Yumeshippers, or ships. Either don't interact, or interact with caution
-- Using me solely to vent, or for favors
 </details>
 
 <details>
