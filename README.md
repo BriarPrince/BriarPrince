@@ -3,7 +3,7 @@
 <br clear="left"/>
 ㅤ
 
-#### My name is Eleanore, though also known as Lyn, or Ài.
+#### My name is Eleanore, though I'm also referred to as Lyn, or Ài.
 
 <details>
 <summary> Basic Information</summary>
