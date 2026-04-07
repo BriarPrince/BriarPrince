@@ -3,7 +3,7 @@
 <br clear="left"/>
 ㅤ
 
-#### My name is Eleanore, though I'm more commonly referred to as Lyn. Nicknames / petnames are all right
+#### My name is Eleanore, though also known as Lyn, or Ài. Nicknames / petnames are all right
 
 <details>
 <summary> Basic Information</summary>
