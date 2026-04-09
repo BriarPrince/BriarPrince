@@ -8,8 +8,8 @@
 <details>
 <summary> Basic Information</summary>
 
-- I'm Eurasian—Danish and Chinese. Though I can only speak Danish and English
 - My birthdate : December 14th
+- I'm Eurasian—Danish and Chinese. Though I can only speak Danish and English
 - Malleus Draconia riako ( non-sharing )
 </details>
 
