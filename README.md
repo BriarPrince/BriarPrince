@@ -28,7 +28,7 @@ I block freely for my own comfort, regardless of specifics
 - Malleus Yumeshippers, selfshippers, or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
 - Befriending me, then expecting a romantic relationship; I have no interest in such
 - Inappropriate or sexual jokes—unless we're close or have known each other for a while
-- Solely contacting me to vent or ask for favors, while having no interest in a mutual relationship
+- Do not solely contact me to vent or ask for favors, while having no interest in a mutual relationship
 </details>
 
 <details>
@@ -37,7 +37,7 @@ I block freely for my own comfort, regardless of specifics
 - I rarely enjoy roleplaying. Don't force it, if you do you'll only make me upset
 - Don't copy my ponies. Light inspiration is alright. Respectfully, do ask first
 - I'm only ever active on the safe server, never on 18+
-- heavily cudcomf; I like sitting, cuddling and hiding behind my friends
+- Heavily cudcomf; I like sitting, cuddling and hiding behind my friends
 - W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message, as I usually only check my personal local chat. I'm not ignoring you
 </details>
 
