@@ -35,9 +35,10 @@ I block freely for my own comfort, regardless of this list
 <details>
 <summary> Pony Town Notes</summary>
  
-- I don't often enjoy roleplaying, don't force it
-- I'm only active on the safe server, never on 18+
-- W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message
-- Don't copy my ponies. Light inspiration is alright
+- I rarely enjoy roleplaying. Don't force it, or attempt to
+- Don't copy my ponies. Light inspiration is alright. Respectfully, do ask first
+- I'm only ever active on the safe server, never on 18+
+- heavily cudcomf; I like sitting, cuddling and hiding behind my friends. If you're not with me please do try not to cover
+- W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message, as I solely check my personal local chat. I'm not ignoring you on purpose
 </details>
 
