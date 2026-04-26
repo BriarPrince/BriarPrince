@@ -25,6 +25,6 @@ I block without restraint, regardless of specifics
 
 
 Interact with Caution
-- People over 18, unless you have proper boundaries
+- People over 16
 - Hazbin Hotel & Helluva boss fans
 - Anyone who fetishizes Yuri and Yaoi
